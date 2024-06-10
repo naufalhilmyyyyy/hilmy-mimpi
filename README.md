@@ -1,2 +1,2 @@
 # hilmy-mimpi
-wes pokok dadi wong sugih
+wes pokok dadi wong 
